@@ -41,4 +41,4 @@ As games have catered to more and more people, especially as they have catered m
 
 ##Sharing is Caring
 
-
+It's a real pleasure to get to see a different side of your partners personality. Playing a new game with your wife is nice, playing a game together where you have to use communication skills you rarely get to see with your wife or husband. It's not common for a married couple to consult on tactical issues. 
